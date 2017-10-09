@@ -1,3 +1,1 @@
 # Pelipeli
-moi
-yks tykkää
